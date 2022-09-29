@@ -1,2 +1,6 @@
 # easyProblemPrectice
-In this repository i will prectice easy problem question.
+Name : d kartik
+
+
+Education
+10th:
